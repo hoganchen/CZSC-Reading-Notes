@@ -1,7 +1,7 @@
 # Summary
 
 * [Introduction](README.md)
-* [缠中说禅阅读笔记001-010课](chapter1.md)
+* [缠中说禅阅读笔记001-010课](chan-zhong-shuo-shan-yue-du-bi-ji-001-010-ke.md)
 * [缠中说禅阅读笔记011-020课](chan-zhong-shuo-shan-yue-du-bi-ji-011-020-ke.md)
 * [缠中说禅阅读笔记021-030课](chan-zhong-shuo-shan-yue-du-bi-ji-021-030-ke.md)
 * [缠中说禅阅读笔记031-040课](chan-zhong-shuo-shan-yue-du-bi-ji-031-040-ke.md)
