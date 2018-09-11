@@ -13,4 +13,5 @@
 * [缠中说禅阅读笔记091-100课](chan-zhong-shuo-shan-yue-du-bi-ji-091-100-ke.md)
 * [缠中说禅阅读笔记100-108课](chan-zhong-shuo-shan-yue-du-bi-ji-100-108-ke.md)
 * [杂记--数据库查询](za-8bb0-shu-ju-ku-cha-xun.md)
+* [书籍推荐](shu-ji-tui-jian.md)
 
