@@ -20,7 +20,17 @@ google search with keyword "短线交易秘诀 pdf"
 
 [http://www.gucuan.com/lbyrm/164.html](http://www.gucuan.com/lbyrm/164.html)
 
-https://sobooks.cc/books/994.html
+[https://sobooks.cc/books/994.html](https://sobooks.cc/books/994.html)
 
-http://mydbfx.com/?p=1476
+[http://mydbfx.com/?p=1476](http://mydbfx.com/?p=1476)
+
+* ##### 华章金融投资经典系列
+
+http://www.guhai.com.cn/html/ZGSJ/gupiaoshuji/86173.html
+
+http://www.sy9d.com/thread-108244-1-1.html
+
+https://zhuanlan.zhihu.com/p/31081531
+
+https://zhuanlan.zhihu.com/p/31105351
 
