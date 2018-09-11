@@ -26,11 +26,25 @@ google search with keyword "短线交易秘诀 pdf"
 
 * ##### 华章金融投资经典系列
 
-http://www.guhai.com.cn/html/ZGSJ/gupiaoshuji/86173.html
+[http://www.guhai.com.cn/html/ZGSJ/gupiaoshuji/86173.html](http://www.guhai.com.cn/html/ZGSJ/gupiaoshuji/86173.html)
 
-http://www.sy9d.com/thread-108244-1-1.html
+[http://www.sy9d.com/thread-108244-1-1.html](http://www.sy9d.com/thread-108244-1-1.html)
 
-https://zhuanlan.zhihu.com/p/31081531
+[https://zhuanlan.zhihu.com/p/31081531](https://zhuanlan.zhihu.com/p/31081531)
 
-https://zhuanlan.zhihu.com/p/31105351
+[https://zhuanlan.zhihu.com/p/31105351](https://zhuanlan.zhihu.com/p/31105351)
+
+* ##### 股市趋势技术分析圣经
+
+http://www.ireadweek.com/index.php/bookInfo/8584.html
+
+https://bookset.me/3190.html
+
+http://www.ifshu.com/forum.php?mod=viewthread&tid=2661&extra=page%3D1
+
+* ##### 股市趋势技术分析
+
+http://www.chaogux.com/thread-4061-1-1.html
+
+http://www.kindle178.com/detail\_1946.html
 
