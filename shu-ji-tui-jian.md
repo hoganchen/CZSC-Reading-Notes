@@ -36,15 +36,33 @@ google search with keyword "短线交易秘诀 pdf"
 
 * ##### 股市趋势技术分析圣经
 
-http://www.ireadweek.com/index.php/bookInfo/8584.html
+[http://www.ireadweek.com/index.php/bookInfo/8584.html](http://www.ireadweek.com/index.php/bookInfo/8584.html)
 
-https://bookset.me/3190.html
+[https://bookset.me/3190.html](https://bookset.me/3190.html)
 
-http://www.ifshu.com/forum.php?mod=viewthread&tid=2661&extra=page%3D1
+[http://www.ifshu.com/forum.php?mod=viewthread&tid=2661&extra=page%3D1](http://www.ifshu.com/forum.php?mod=viewthread&tid=2661&extra=page%3D1)
 
 * ##### 股市趋势技术分析
 
-http://www.chaogux.com/thread-4061-1-1.html
+[http://www.chaogux.com/thread-4061-1-1.html](http://www.chaogux.com/thread-4061-1-1.html)
 
-http://www.kindle178.com/detail\_1946.html
+[http://www.kindle178.com/detail\_1946.html](http://www.kindle178.com/detail_1946.html)
+
+#### 2018-09-18
+
+* ##### 经济学入门
+
+http://www.self-learning-college.org/CyberEconomics\_final\_SC.pdf
+
+http://mydbfx.com/?p=3234
+
+https://www.jianshu.com/p/d5add8f43b4d
+
+http://www.ireadweek.com/index.php/bookInfo/1619.html
+
+http://www.ireadweek.com/index.php/bookList/31.html
+
+https://hdpdf.blog/2018/01/16/%E6%88%91%E7%9A%84%E7%AC%AC%E4%B8%80%E6%9C%AC%E7%BB%8F%E6%B5%8E%E5%AD%A6%E6%BC%AB%E7%94%BB-%E6%9D%8E%E6%B1%89%E5%86%9B%EF%BC%88%E9%AB%98%E6%B8%85%E6%89%AB%E6%8F%8Fpdf%E7%94%B5%E5%AD%90%E4%B9%A6/
+
+
 
