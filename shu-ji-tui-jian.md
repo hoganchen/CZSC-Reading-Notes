@@ -46,7 +46,7 @@ google search with keyword "短线交易秘诀 pdf"
 
 [http://www.chaogux.com/thread-4061-1-1.html](http://www.chaogux.com/thread-4061-1-1.html)
 
-[http://www.kindle178.com/detail/1946.html](http://www.kindle178.com/detail_1946.html)
+http://www.kindle178.com/detail\_1946.html
 
 #### 2018-09-18
 
