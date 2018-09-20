@@ -2,6 +2,8 @@
 
 [http://gucuan.com/lmf/](http://gucuan.com/lmf/)
 
+#### 2018-09-03\(已下载\)
+
 * ##### 缠论
 
 google search with keyword "filetype:pdf site:chanlun.org"
@@ -46,9 +48,9 @@ google search with keyword "短线交易秘诀 pdf"
 
 [http://www.chaogux.com/thread-4061-1-1.html](http://www.chaogux.com/thread-4061-1-1.html)
 
-http://www.kindle178.com/detail\_1946.html
+[http://www.kindle178.com/detail\_1946.html](http://www.kindle178.com/detail_1946.html)
 
-#### 2018-09-18
+#### 2018-09-18\(未下载\)
 
 * ##### 经济学入门
 
